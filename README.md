@@ -1,4 +1,4 @@
-<img src="https://static.wikia.nocookie.net/thelastofus/images/5/5c/WLF_logo-2.jpg/revision/latest?cb=20230513225553" alt="Washington Liberation Front | The Last of Us Wiki | Fandom"/> />
+<img src="https://static.wikia.nocookie.net/thelastofus/images/5/5c/WLF_logo-2.jpg/revision/latest?cb=20230513225553" alt="Washington Liberation Front | The Last of Us Wiki | Fandom"/>
 
 
 
