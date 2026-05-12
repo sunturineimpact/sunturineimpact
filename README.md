@@ -1,4 +1,4 @@
-<img src="https://i.pinimg.com/736x/c1/c7/0c/c1c70cf9c5929184b01707e88109e1e6.jpg" alt="Story Pin image"/>
+<img src="https://i.pinimg.com/736x/0d/f1/0c/0df10cb736a5d61517da1b42db239e86.jpg" alt="Story Pin image"/>
 
 
 
